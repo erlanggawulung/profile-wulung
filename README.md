@@ -1,2 +1,0 @@
-# profile-wulung
-personal website
